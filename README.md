@@ -7,7 +7,7 @@
 
 ## 📞 Contact Now
 
-- 📲 **Telegram**: [@SBPTool_bot](https://t.me/SBPTool_bot) *(Fastest Response)*
+- 📲 **Telegram**: [@SBPTool_bot](https://t.me/k_s_moh) *(Fastest Response)*
 
 ✅ Instant replies • 🛠️ Professional guidance
 ---
